@@ -1,1 +1,0 @@
-# Project_waste_management
